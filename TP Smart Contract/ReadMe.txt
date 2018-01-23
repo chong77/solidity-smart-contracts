@@ -1,1 +1,1 @@
-lalalalalala
+Ici on mets nos notes, ce à quoi on pense et comment on pense résoudre nos problèmes.
